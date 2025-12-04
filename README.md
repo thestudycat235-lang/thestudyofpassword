@@ -1,4 +1,4 @@
-# 获取密码 🎉
+# 感谢支持--如何获取密码 🎉
 
 <img width="850" height="567" alt="image" src="https://github.com/user-attachments/assets/bdd08846-dde6-47dc-9c88-f5056043623a" />
 
